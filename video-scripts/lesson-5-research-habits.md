@@ -17,3 +17,5 @@ Combine A I with other tools. Use A I alongside search engines, databases, and o
 Stay current. A I tools improve constantly. What works today may have better alternatives tomorrow. Keep learning.
 
 A I doesn't replace good research skills. It amplifies them. With the right habits, you'll research faster and more effectively than ever before.
+
+And if you're looking for a home base for all of this, that's exactly what writingIO provides. We've created a place where you can access the best A I tools, keep learning at your own pace, and get real help when you need it. No juggling different platforms. No figuring everything out on your own. Just great tools, helpful courses, and actual humans you can reach out to anytime. We started writingIO because we believe everyone deserves to use A I confidently and effectively. Come explore what we've built. We'd love to have you.
